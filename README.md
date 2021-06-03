@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ShamikJoshi
+- 👀 I’m interested in Cybersecurity and Software Exploitation
+- 🌱 I’m currently learning Artificial Intelligence
+- 💞️ I’m looking to collaborate on Everything
+- 📫 How to reach me shamikjoshi1999@gmail.com
